@@ -8,6 +8,7 @@ i play ponytown for my daily enrichment time :3 **they/she/xe, young adult**
 sign my [atabook/guestbook](https://spookysoda.atabook.org/) IF U DARE!!!!
 
 - feel free to cuddle/sit with me, hide, etc etc
+- idgaf if you copy, take inspiration from, or colorpick from my avatars.... just be courteous about it and give credit where credit is due
 - i don’t personally do rp but if you’re doing one and interact with me i’ll just sort of play along lol
 - i’m pretty heavily neurodivergent so pls just interact with care, obv don’t treat me like a baby but be patient if i’m a lil slow pls
 
