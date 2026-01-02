@@ -4,6 +4,7 @@
 
 hii im **rex**!!
 i play ponytown for my daily enrichment time :3 **they/she/xe, young adult**
+sign my [atabook/guestbook](https://spookysoda.atabook.org/) IF U DARE!!!!
 
 - feel free to cuddle/sit with me, hide, etc etc
 - i don’t personally do rp but if you’re doing one and interact with me i’ll just sort of play along lol
