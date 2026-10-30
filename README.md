@@ -1,5 +1,7 @@
 > grow brighter. around one constant, they revolve.
 
+> <img width="140" src="https://komarev.com/ghpvc/?username=SpookySoda&label=FBC members&color=cc0001">
+
 ![ezgif-6b5feef84257d78e](https://github.com/user-attachments/assets/31284451-bbb1-49d2-b31d-4e9cf057e60d)
 
 hii im **rex**!!
